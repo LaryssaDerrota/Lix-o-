@@ -3,4 +3,5 @@
 -Morrendo para aprender programação...socorro ai chaves
 
 
-![](https://media1.tenor.com/m/o86qiup4hGsAAAAd/jim-carrey-carrey.gif)
+![](https://tenor.com/pt-BR/view/jim-carrey-jim-carrey-the-mask-the-mask-movie-gif-23723211)
+
